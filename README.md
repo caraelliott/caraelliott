@@ -4,5 +4,7 @@ I’m currently learning Software Developer fundamentals while working towards s
 
 My main interest in life is retro videogames but I am also fond of live music, film, art and philosophy.
 
+ https://my.indeed.com/p/carae-99wlisp
+
 
 
