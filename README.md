@@ -1,4 +1,4 @@
-I'm 28 and love video-games
+I love video-games
 
 
 
